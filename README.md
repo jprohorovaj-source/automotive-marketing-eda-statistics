@@ -10,7 +10,7 @@
 
 Все сертификаты, документы и файлы подтверждения доступны по ссылке:
 
-🔗 https://drive.google.com/drive/folders/1EJ8qFd0Zk4N3j0RvpUAbviWmVzqqofDq?usp=sharing
+🔗 https://drive.google.com/drive/folders/1S-C4RRe0KDo3VYcOqItpZjX-_lAHJ7Zc?usp=drive_link 
 
 ---
 
